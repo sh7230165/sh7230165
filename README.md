@@ -1,4 +1,4 @@
-### I'm majoring in English Education 😆
+### I'm majoring in English Education 😆 (Since March. 19, 2024)
 
 <!--
 **sh7230165/sh7230165** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
